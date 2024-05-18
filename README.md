@@ -30,8 +30,7 @@ Enhancing my knowledge of cloud computing ☁️
 
 ## 📫 Let's connect:
 
-Connect on [LinkedIn 💼](https://www.linkedin.com/in/m-hammed-mechroubi-a3134a275/)
-Mail : m.mechroubicontact@gmail.com
+Connect on [LinkedIn 💼](https://www.linkedin.com/in/m-hammed-mechroubi-a3134a275/) or my mail : m.mechroubicontact@gmail.com
 Check out my portfolio 🌟
 
 ## Check my project
